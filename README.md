@@ -1,2 +1,7 @@
 # beepbox-study
-Study notes using beepbox.co
+Study notes using [beepbox.co](beepbox.co).
+
+[How To Read Sheet Music: Step-by-Step Instructions](https://www.musicnotes.com/now/tips/how-to-read-sheet-music/)
+
+## Twinkle, Twinkle, Little Star
+https://www.beepbox.co/#7n31sbk8l08e03t2cm0a7g0fj7i0r1o3210T1v0u61q1d5f7y0z6C1c0A5F2B6V7Q0530Pf636E0011T5v0ua2q3d7f7y6z1C0c4h0HKTTz99irrqih90T1v0ucaq1d2f9y2z9C0c0A1F0B9VgQ2030Pef20E0181T4v0uf0q1z6666ji8k8k3jSBKSJJAArriiiiii07JCABrzrrrrrrr00YrkqHrsrrrrjr005zrAqzrjzrrqr1jRjrqGGrrzsrsA099ijrABJJJIAzrrtirqrqjqixzsrAjrqjiqaqqysttAJqjikikrizrHtBJJAzArzrIsRCITKSS099ijrAJS____Qg99habbCAYrDzh00b4zcicN8P4h40018P4zch4g000000014h000y8x4h4h4p21wFB-aq2CUFEao4FEakQv9BYhaq2Cgaq2Chaq2DdcLC5d1jokQ5dxjgkVxBwFE_G3O_2k7B--wYL00kRVNuCz9e3OsAO-iunw0
